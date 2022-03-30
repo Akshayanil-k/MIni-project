@@ -7,12 +7,16 @@
 
 
 
-https://filetransfer.io/data-package/Qydq5lqH#link
+https://filetransfer.io/data-package/lGWHJACx#link
+
+
+
+https://filetransfer.io/data-package/lGWHJACx#link
 
 
 
 
-https://github.com/Gunjitbedi/Text-Classification/blob/master/corpus.csv
+
 
 
 
